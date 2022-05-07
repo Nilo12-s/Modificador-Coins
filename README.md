@@ -20,7 +20,10 @@ Introdução da liga do Coins:
 
 ![pixilart-drawing](https://user-images.githubusercontent.com/78621026/167264573-6bf6f9b2-da53-4d3a-a277-45a06a0e82ad.png)
 
-Temporada 5: MetaCoins
+
+
+Temmporada 5: MetaCoins
+
 ![Temporada_5_do_Coins](https://user-images.githubusercontent.com/78621026/167264734-a2947085-86a7-4a29-b234-4ce8f82fd227.jpg)
 
 ©Coins Support™, 2022
