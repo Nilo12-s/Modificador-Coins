@@ -12,9 +12,15 @@ Graças a você e seu feedback e sugestões, além de relatos de bugs!
 
 Interessante né? Já pensou em entrar nessa? Essa é sua chance de ajudar!
 
-Temporada atual:![Temporada_5_do_Coins](https://user-images.githubusercontent.com/78621026/167264537-bb5711d2-e162-4d04-b17c-3445cafd7539.jpg)
+Temporada atual:
 
+! [Temporada_5_do_Coins] ( https://user-images.githubusercontent.com/78621026/167264537-bb5711d2-e162-4d04-b17c-3445cafd7539.jpg )
 
+Introdução da liga do Coins:
+
+![pixilart-drawing](https://user-images.githubusercontent.com/78621026/167264573-6bf6f9b2-da53-4d3a-a277-45a06a0e82ad.png)
+
+©Coins Support™, 2022
 
 
 
