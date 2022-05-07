@@ -22,9 +22,9 @@ Introdução da liga do Coins:
 
 
 
-Temmporada 5: MetaCoins
+Temporada 5: MetaCoins
 
-![Temporada_5_do_Coins](https://user-images.githubusercontent.com/78621026/167264734-a2947085-86a7-4a29-b234-4ce8f82fd227.jpg)
+![Temporada_5_do_Coins](https://media.discordapp.net/attachments/889294387421519942/972597423237111818/Coins_Pass_Season_5.jpg)
 
 ©Coins Support™, 2022
 
